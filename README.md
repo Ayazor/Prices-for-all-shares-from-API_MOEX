@@ -1,0 +1,1 @@
+# Prices-for-all-shares-from-MOEX
